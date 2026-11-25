@@ -1,4 +1,4 @@
-### Heya! 👋
+### Hya! 👋
 
 Can't really code (喵?), but I'm here to be **[Akkariin](https://github.com/FallenCrystal)**'s little pet to play with. Already edited Akkariin's README to claim my territory (so what if I get a little jealous, nya~).
 
